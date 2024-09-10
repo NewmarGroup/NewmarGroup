@@ -5,11 +5,11 @@
 Newmar Group – швейцарский брокер с устойчивой репутацией, подтвержденной экспертами. Но несмотря на высокую оценку профессионального инвестиционного сообщества, все еще есть трейдеры, которые задаются вопросом: насколько безопасно сотрудничать с брокером и действительно ли он выполняет свои финансовые обязательства перед клиентами. Разобраться в этом помогут отзывы о Newmar Group.
 ## Отзывы о Newmar Group
 Сразу стоит отметить, что отзывы о Newmar Group чаще всего встречаются в Сети на английском, немецком и французском языках. Но с недавних пор отзывы о Newmar Group появились и на русском. Найти их можно в социальных сетях и на профильных ресурсах для инвесторов:
-* Medium;
-* Blogspot;
-* Slashpage;
-* Teletype;
-* HackMD;
+* [Medium](https://medium.com/@fedorgoncarenko799/newmar-group-%D0%BE%D1%82%D0%B7%D1%8B%D0%B2%D1%8B-%D0%BD%D0%BE%D0%B2%D0%BE%D0%B5-%D1%81%D0%BB%D0%BE%D0%B2%D0%BE-%D0%B2-%D0%B8%D0%BD%D0%B2%D0%B5%D1%81%D1%82%D0%B8%D1%80%D0%BE%D0%B2%D0%B0%D0%BD%D0%B8%D0%B8-ff8ff6d9bcfc);
+* [Blogspot](https://newmargroup.blogspot.com/2024/09/newmar-group.html);
+* [Slashpage](https://slashpage.com/newmar-group);
+* [Teletype](https://teletype.in/@newmar_group/AGSDiuwjM6C);
+* [HackMD](https://hackmd.io/@NewmarGroup/Bkoqcz0nA);
 * LinkedIN.
 
 Отзывы о Newmar Group, в основном, положительные. Но иногда авторы отмечают и незначительные недостатки.
